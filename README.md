@@ -4,7 +4,7 @@
 **터치 한 번으로 이체 끝! NFC 간편 송금 시스템**
 
 ### 📽️ 발표자료 및 시연 영상  
-[📎 Canva 발표자료 & 시연영상 링크](https://www.canva.com/design/DAHD_l-ALDQ/flC0D_Z7XkRNAuq_w3GCXA/edit?utm_content=DAHD_l-ALDQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+[📎 Canva 발표자료 & 시연영상 링크](https://www.canva.com/design/DAHD_l-ALDQ/ZsZ26WMvGNkFa5ibt8tm2g/view?utm_content=DAHD_l-ALDQ&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h28d7bb2a32)
 
 ---
 
